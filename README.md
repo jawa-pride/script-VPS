@@ -232,6 +232,6 @@ Update rutin, backup teratur, dan jangan pernah bagikan kredensialmu.
 
 **Stay safe. Stay sharp. 🔐**
 
-*— [@c.for.charr](https://github.com/)*
+*— [@c.for.charr](https://instagram.com/c.for.charr)*
 
 </div>
